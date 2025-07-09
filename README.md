@@ -1,4 +1,4 @@
-I am going to be building a portfollio website soon.
+I am going to be building a portfolio website soon.
 
 Trust
 
